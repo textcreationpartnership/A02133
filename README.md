@@ -35,9 +35,21 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Menaphon Camillas alarum to slumbering Euphues, in his melancholie cell at Silexedra. VVherein are d
+
+1. To the right Worshipfull and vertuous Ladie, the Ladie Hales, wife to the late deceased Sir Iames Hales; Robert Greene wisheth increase of Worship and vertue.
+
+1. To the Gentlemen Readers, health.
+
+1. In laudem Authoris, Distichon amoris.
+
+1. Thomas Brabine Gent. in praise of the Author.
+
+1. To the Gentlemen Students of both Uniuersities.
+
 #####Body#####
-Menaphon Camillas alarum to slumbering Euphues, in his melancholie cell at Silexedra. VVherein are d
+
+1. Arcadia.
+
 **Types of content**
 
   * There are 489 **verse** lines!
